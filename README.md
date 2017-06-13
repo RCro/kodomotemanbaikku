@@ -1,0 +1,2 @@
+# kodomotemanbaikku
+kodomo teman baikku
